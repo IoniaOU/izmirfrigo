@@ -1,1 +1,1 @@
-# [Tufan Elektronik](https://tufanelektronik.com)
+# [İzmir Frigo](https://izmirfrigo.com)
